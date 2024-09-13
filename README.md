@@ -1,1 +1,1 @@
-# BrendonXShop
+# BRENDON SHOP
